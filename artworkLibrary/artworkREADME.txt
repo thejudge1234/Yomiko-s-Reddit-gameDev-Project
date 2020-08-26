@@ -1,1 +1,1 @@
-there is nothing here right now, come back later
+Please keep art assets here.
